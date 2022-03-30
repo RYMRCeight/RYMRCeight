@@ -1,4 +1,4 @@
-- ✨ Good Day! 👋 Hi, I’m @RYMRCeight! 
+- ✨ Good Day! 👋 Hi, I’m @Reymarc Jason T. Tampos! 
 
 <!---
 RYMRCeight/RYMRCeight is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
